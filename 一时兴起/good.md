@@ -1,0 +1,1 @@
+赞扬孩子表现时，可以用「attaboy」「attagirl」。这样说就不会像「good boy」「good girl」一样误入「好像在叫一只狗啊」的误区。
